@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LUGJ951002HMCCRN00
+LUGJ951002HMCCRN00
